@@ -1,1 +1,1 @@
-# loyiha
+shunchaki teskshirish uchun yozildi
